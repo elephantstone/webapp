@@ -1,1 +1,1 @@
-Torch light on the run with my beams fade away
+I'm about to puke for all I had, a disgrace I shall not held
